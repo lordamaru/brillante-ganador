@@ -1,2 +1,0 @@
-# brillante-ganador
-Amaru
